@@ -1,0 +1,2 @@
+# [💣.com](conspiracytheoriesarethebomb.com)
+
